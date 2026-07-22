@@ -1,2 +1,2 @@
 # peeranatwattananuruk.com
-Peeranat Wattananuruk's portfolio
+Peeranat Wattananuruk's portfolio website
